@@ -1,3 +1,4 @@
+
 # AEGISX Privacy Policy
 
 **Effective Date:** April 9, 2026
